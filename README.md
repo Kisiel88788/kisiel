@@ -1,2 +1,0 @@
-# kisiel
-stardew valley splosczenie 
